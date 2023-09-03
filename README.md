@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **b4ndarm@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1hBiec8JTJGSazpOlBZv3shp8Q4IeJ5wC/view?usp=share_link](https://drive.google.com/file/d/1hBiec8JTJGSazpOlBZv3shp8Q4IeJ5wC/view?usp=share_link)
+- 📄 Know about my experiences [https://shorturl.at/bgsD4](https://shorturl.at/bgsD4)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
